@@ -1,0 +1,3 @@
+- 👋 Ahoy there, I’m @mentegaaterbang
+- I'm a website dev. Pretty new to the industry. I'm looking for new knowledge everyday and opens for critis. Would like to learn how to be proffessional in building what i love to do.
+- If i have something that doesn't suit the standard. Please correct me. Thankyou.
